@@ -1,1 +1,1 @@
-Click to preview: https://hypertranslator.pages.dev/
+https://hypertranslator.pages.dev
